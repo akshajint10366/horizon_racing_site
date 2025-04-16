@@ -1,1 +1,1 @@
-Website for Team Shiksha Parivartan, from HIXS Gurgaon for their CIE IGCSE Global Perspectives (0457) Team Project. 
+Website for Team Horizon Racing, an F1 in Schools Team from HIXS Gurgaon 
